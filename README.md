@@ -6,4 +6,3 @@
 - 🤔 I’m looking for help with a Job
 - 💬 Ask me about Enterprise GIS Administration
 - 📫 How to reach me: https://bit.ly/326Avoc
--->
